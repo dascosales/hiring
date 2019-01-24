@@ -1,5 +1,7 @@
 # Hiring
 
+# This position has been filled as of 2019-01-21
+
 [Hiring][Remote][Freelance]
 
 Daughtridge Sales is an industrial instrument distributor. We are an established company with sights set on moving forward in our industry by meeting our customers' evolving needs through user friendly technological solutions.
